@@ -4,7 +4,7 @@
 - 💞️ I look forward to working with others
 - 📫 How to reach me: on this platform
 - 😄 Pronouns: Prompt
-- ⚡ Fun fact: I love Gospel Song and Cooking
+- ⚡ Fun fact: I love Gospel Song, Cooking and going for a Walks
 
 <!---
 Abbi-Cons/Abbi-Cons is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
