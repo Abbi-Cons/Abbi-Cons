@@ -7,6 +7,5 @@
 - ⚡ Fun fact: I love Gospel Song and Cooking
 
 <!---
-Abbi-Cons/Abbi-Cons is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+Abbi-Cons/Abbi-Cons is a ✨ special ✨ 
 --->
