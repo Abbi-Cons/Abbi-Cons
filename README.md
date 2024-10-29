@@ -4,7 +4,7 @@
 - 💞️ I look forward to working with others
 - 📫 How to reach me: on this platform
 - 😄 Pronouns: Prompt
-- ⚡ Fun fact: I love Gospel Song and Cooking
+- ⚡ Fun fact: I love Gospel Song, Cooking and going for Walks
 
 <!---
 Abbi-Cons/Abbi-Cons is a ✨ special ✨ 
